@@ -1,1 +1,1 @@
-# Blujaytechnologies
+# blujaytechnologies
